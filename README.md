@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I’m currently working on: some projects in my UNI<br>👯 I’m looking to collaborate on: Projects I'm making with my friend<br>🤝 I’m looking for help with: Improving myself<br>🌱 I’m currently learning: ITE in Al-Sham Private University<br>
+🔭 I’m currently working on: some projects in my UNI, Coursera courses and some other courses<br>👯 I’m looking to collaborate on: Projects I'm making with my friend<br>🌱 I’m currently Studying: ITE in Al-Sham Private University<br>
 
 
 ## 🌐 Socials:
